@@ -15,7 +15,7 @@ You can click the Preview link to take a look at your changes.
 ![image](https://github.com/user-attachments/assets/065d06ea-ec23-432c-8ffe-dc3e82241253)
 
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315xn3uuv57d64p54hwpj7xuatiu&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&bar_color=006d8f)](https://github.com/kittinan/spotify-github-profile)
 
 creds :
 psds by @loversfool  ;; frame by tanabatawish on Pinterest
