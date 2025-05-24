@@ -13,7 +13,5 @@ You can click the Preview link to take a look at your changes.
 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315xn3uuv57d64p54hwpj7xuatiu&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&bar_color=006d8f)](https://github.com/kittinan/spotify-github-profile)
-
 
  
