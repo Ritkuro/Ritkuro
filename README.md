@@ -1,25 +1,19 @@
-![image](https://github.com/user-attachments/assets/c988cf1e-adc3-4712-a784-74ece71b3167)
-![image](https://github.com/user-attachments/assets/1acb24e6-913a-42b7-842e-da4acd319138)
 
-- Seiris | 19+ | Viet/Eng/Russ (just a bit) 
-- Please pronounce as he/him 
+
+
+- Seiris | 20+ | Viet/Eng/Russ (just a bit) 
+- He/him 
 - Awkward person, i might got burn out during our conversation please excuse me for this 
-- I play Honkai S.Rail, Genshin and Identity V, all on Asian serv, feel free to add me ingame if you want to teamup
-- Gallagher and Sunday enjoyer, please come to me please please pretty please 
+![image](https://github.com/user-attachments/assets/3551bdb8-9eb9-4626-8d3d-9e751425d6c4)
+
 
 <!---key infrastructure projectsRitkuro/Ritkuro is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
 
-   ![image](https://github.com/user-attachments/assets/9b9cc195-2f5f-4e33-8b93-78b973e4d888)
-![image](https://github.com/user-attachments/assets/065d06ea-ec23-432c-8ffe-dc3e82241253)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315xn3uuv57d64p54hwpj7xuatiu&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&bar_color=006d8f)](https://github.com/kittinan/spotify-github-profile)
 
-creds :
-psds by @loversfool  ;; frame by tanabatawish on Pinterest
-@/sister-lucifer on Tumblr
-@/novaiite on Tumblr
 
  
